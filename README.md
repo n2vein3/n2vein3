@@ -20,7 +20,9 @@ ds: n2vein3 âœ¦ tg: <a href="https://t.me/n2vein3" target="_blank">n2vein3</a> â
 <br/>
 alt githubs
 <br/>
-<a href="https://github.com/thetellers" target="_blank">@thetellers</a> && <a href="https://github.com/ReelingFromTheRafters" target="_blank">@ReelingFromTheRafters</a> && <a href="https://github.com/RainMyHeart" target="_blank">@RainMyHeart</a><br/>
+<a href="https://github.com/thetellers" target="_blank">@thetellers</a> && <a href="https://github.com/ReelingFromTheRafters" target="_blank">@ReelingFromTheRafters</a> && <a href="https://github.com/RainMyHeart" target="_blank">@RainMyHeart</a><br/><br/>
+<br/> pt's sorrow *  <a href="https://github.com/pt-fashion" target="_blank">@pt-fashion <br/> <img width="282" height="36" alt="image" src="https://github.com/user-attachments/assets/4e6767f7-5fda-4321-9ed1-6ab9ff700b56" />
+
 
 </details>
 
