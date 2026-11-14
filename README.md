@@ -18,8 +18,8 @@ $$\color{brown} ⋆⋅†⋅⋆ $$
 ds: n2vein3 ✦ tg: <a href="https://t.me/n2vein3" target="_blank">n2vein3</a> ✦ rb: t3valenc
 <br/>
 <br/>
-prev username : n2vein3-v2 
-alts 
+prev username : n2vein3-v2 <br/>
+alts ;
 <br/>
 <a href="https://github.com/thetellers" target="_blank">@thetellers</a> && <a href="https://github.com/freelance-surgeon" target="_blank">@freenlance-surgeon</a> && <a href="https://github.com/RainMyHeart" target="_blank">@RainMyHeart</a><br/><br/>
 <br/> pt's sorrow *  <a href="https://github.com/pt-fashion" target="_blank">@pt-fashion</a> <br/> <img width="282" height="36" alt="image" src="https://github.com/user-attachments/assets/4e6767f7-5fda-4321-9ed1-6ab9ff700b56" />
