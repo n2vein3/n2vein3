@@ -18,17 +18,18 @@ $$\color{brown} ⋆⋅†⋅⋆ $$
 ds: n2vein3 ✦ tg: <a href="https://t.me/n2vein3" target="_blank">n2vein3</a> ✦ rb: t3valenc
 <br/>
 <br/>
+prev username : n2vein3-v2 
 alts 
 <br/>
-<a href="https://github.com/thetellers" target="_blank">@thetellers</a> && <a href="https://github.com/ReelingFromTheRafters" target="_blank">@ReelingFromTheRafters</a> && <a href="https://github.com/RainMyHeart" target="_blank">@RainMyHeart</a><br/><br/>
-<br/> pt's sorrow *  <a href="https://github.com/pt-fashion" target="_blank">@pt-fashion <br/> <img width="282" height="36" alt="image" src="https://github.com/user-attachments/assets/4e6767f7-5fda-4321-9ed1-6ab9ff700b56" />
+<a href="https://github.com/thetellers" target="_blank">@thetellers</a> && <a href="https://github.com/freelance-surgeon" target="_blank">@freenlance-surgeon</a> && <a href="https://github.com/RainMyHeart" target="_blank">@RainMyHeart</a><br/><br/>
+<br/> pt's sorrow *  <a href="https://github.com/pt-fashion" target="_blank">@pt-fashion</a> <br/> <img width="282" height="36" alt="image" src="https://github.com/user-attachments/assets/4e6767f7-5fda-4321-9ed1-6ab9ff700b56" />
 
 
 </details>
 
 $$\color{black} ─────────────────── ✦ ─────────────────── $$
 
-![](https://komarev.com/ghpvc/?username=n2vein3-v2&label=*&style=for-the-badge&color=red&abbreviated=true)    
+![](https://komarev.com/ghpvc/?username=n2vein3&label=*&style=for-the-badge&color=red&abbreviated=true)    
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3134oc4loiblisg32uqpgxqdjd4e&cover_image=true&theme=spotify-embed&show_offline=true&background_color=120d0d&interchange=false&profanity=false&hide_remaster=true&bar_color=5f0707&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=3134oc4loiblisg32uqpgxqdjd4e&redirect=true)
 
 $$\color{black} ─────────────────── ✦ ─────────────────── $$
