@@ -31,7 +31,7 @@ prev username : n2vein3-v2 <br/>
 $$\color{black} ─────────────────── ✦ ─────────────────── $$
 
 ![](https://komarev.com/ghpvc/?username=n2vein3&label=*&style=for-the-badge&color=red&abbreviated=true&base=231)    
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3134oc4loiblisg32uqpgxqdjd4e&cover_image=true&theme=spotify-embed&show_offline=true&background_color=120d0d&interchange=false&profanity=false&hide_remaster=true&bar_color=5f0707&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=3134oc4loiblisg32uqpgxqdjd4e&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3134oc4loiblisg32uqpgxqdjd4e&cover_image=true&theme=natemoo-re&show_offline=true&background_color=120d0d&interchange=false&profanity=false&hide_remaster=true&bar_color=5f0707&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=3134oc4loiblisg32uqpgxqdjd4e&redirect=true)
 
 $$\color{black} ─────────────────── ✦ ─────────────────── $$
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=670000&center=true&multiline=true&width=435&lines=so+long+and+goodnight%2C+;so+long+and+goodnight" alt="Typing SVG" /></a>
