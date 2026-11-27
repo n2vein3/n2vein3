@@ -20,7 +20,9 @@ ds: n2vein3 âœ¦ tg: <a href="https://t.me/n2vein3" target="_blank">n2vein3</a> â
 <br/>
 prev username : n2vein3-v2 <br/>
 <a href="https://github.com/thetellers" target="_blank">@thetellers</a> && <a href="https://github.com/RainMyHeart" target="_blank">@RainMyHeart</a><br/><br/>
-<br/> <a href="https://github.com/freelance-surgeon" target="_blank">@freelance-surgeon</a> !! </br></br> pt's sorrow *  <a href="https://github.com/pt-fashion" target="_blank">@pt-fashion</a> && <a href="https://github.com/pt-everypony" target="_blank">@pt-everypony</a> <br/> <img width="282" height="36" alt="image" src="https://github.com/user-attachments/assets/4e6767f7-5fda-4321-9ed1-6ab9ff700b56" /> <img width="270" height="34" alt="image" src="https://github.com/user-attachments/assets/83d8f9d1-f0d1-4cb2-be00-c36616f96c73" />
+<br/> <a href="https://github.com/freelance-surgeon" target="_blank">@freelance-surgeon</a> !! </br></br> pt's sorrow *  <a href="https://github.com/pt-fashion" target="_blank">@pt-fashion</a> && <a href="https://github.com/pt-everypony" target="_blank">@pt-everypony</a> <br/> 
+<img width="282" height="36" alt="image" src="https://github.com/user-attachments/assets/4e6767f7-5fda-4321-9ed1-6ab9ff700b56" /> 
+<img width="282" height="36" alt="image" src="https://github.com/user-attachments/assets/83d8f9d1-f0d1-4cb2-be00-c36616f96c73" />
 
 
 
